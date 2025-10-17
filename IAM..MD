@@ -1,4 +1,3 @@
-Sure. Here’s a cleaned-up, more natural version — less like a bot, more like someone’s personal notes.
 
 ---
 
